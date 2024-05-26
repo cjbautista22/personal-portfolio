@@ -1,1 +1,1 @@
-Learn and sicover things about me.
+Learn and discover things about me.
